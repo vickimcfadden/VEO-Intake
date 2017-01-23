@@ -4,7 +4,7 @@ The VEO Intake process will be chaired by the Deputy or Chief of Staff and aims 
 
 1.  Prioritize or re-prioritize investments
 
-2.  Determine delivery timelines
+2.  Ensure internal stakeholder needs align with HCD and Veteran experience research
 
 3.  Decide best development path
 
